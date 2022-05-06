@@ -99,3 +99,8 @@ purpose, drive, and ambition. Rest In Peace, my friend.
 
 Shubhra, you are the most energetic person I have ever met in my life. You gave everyone of us, your time despite your own busy schedule. Anybody could look into your calendar, book a slot and there you were. There was nothing that was impossible in your dictionary. You taught me so much about Open Source, the LF and LFX Products. You taught me what passion really looks like. I don't know what life would look like without meeting you almost daily. Thank you for who you were Shubhra. I will miss your smiling face, energy, that can solve anything attitude and the human being who was just so relatable. It felt you were one amongst us, just like us, just so human. You bossed every challenge. You are loved. You live in our hearts. Rest in Peace smily. 
 
+## Derek Weeks
+
+The brightest, friendliest smile in the room was always Shubhra’s.  While our paths only intersected for a brief time, I can say it was truly an honor to work with this man.  He was the kind of leader and friend who would pull me aside to offer perspectives that could accelerate a plan forward or help us avoid stepping into a hole that might set us back.  While his ambitions were strong, his approach was never self-centered nor was he ever one to brag of his personal accomplishments.  He embodied team spirit - always willing to lend a hand, put in an extra effort, give credit to others, and seek opportunities that would enable others around him to shine.  You don’t come across leaders like him everyday. 
+
+My heart goes out to his wife, children, family and friends in these difficult times ahead.  His spirit remains Shubhra’s with all of us. Rest In Peace, my friend.
